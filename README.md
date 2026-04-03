@@ -1,12 +1,7 @@
-<p align="center">
-  UNDER CONSTRUCTION
-  <a href="https://rentry.co/slimeknight-">/rentry</a>,ᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ<a href="https://hash8f2240.atabook.org">ata.org</a>
-  <p align="center">
-  <img width="550px" src="https://64.media.tumblr.com/c539d526ae97f826732ab7da36aaf4ef/6eabe8cd53a3e20b-67/s2048x3072/c4283f9986a7dcd440d51559db21c0ed77c150e0.gifv" />
-  <img width="550px" src="https://file.garden/aG4uPTNO_Dlar84S/to-you" />
-    </p>
-    <p align="center">
-  <img width="100px" src="https://64.media.tumblr.com/6a28623f115dccad0c968005e06803fa/0a31dc5637e41a71-64/s100x200/4468e617356f7e6a4a5fbd2eab985664430ca6a4.pnj" /> <img width="100px" src="https://64.media.tumblr.com/7fadadaba0b2797b35fb9ec53c4d65dc/2313462277efff0c-bd/s100x200/868206029a45d5deea1bc58743842dc942b07a27.pnj" />  <img width="100px" src="https://64.media.tumblr.com/69a2b894e3aab0364e6c94e67f19e7be/2313462277efff0c-74/s100x200/11c80ece356d4cf280eef7082c5683e811bc65a1.gifv" />  <img width="100px" src="https://64.media.tumblr.com/a052c2f9bf225bc41ae1ece084d988f3/ef02973d24e16b18-55/s100x200/c19ba2cfa0a3b7fe346014dc4d74918d1d27e56b.gifv" /> <img width="100px" src="https://64.media.tumblr.com/23ec37c4523e8950553e30dab5515789/3606925bbbc4adfe-c7/s100x200/95ea8a7438af6a54c83c23e7bba9b4c56ab92c62.pnj" />
+  <img align="left" width="410px" salt="image" src="https://file.garden/aG4uPTNO_Dlar84S/to-you" />
+  <img align="center" width="390px" alt="image" src="https://64.media.tumblr.com/1b81cbc88dc2277622002c3f81c27e4d/497b5f9227db1e94-b6/s250x400/d84214b04f15ad7b73c28bed83de235939d57f35.gif" /> 
+  <p align="justify"> $\color{#764dac}{\textsf{adapted only for dark theme,}}$   ᅠ gif  <a href="https://x.com/shimoexu/status/2027145005434024371">credit</a>  
+  </p> <p align="justify">  $\color{#c97fb1}{\textsf{name me anything  /srs}}$    ᅠ    any prns,ᅠ $\color{#cfae93}{\textsf{(ㅅ´ ˘ `)}}$ᅠ feel free to sit with my anytime  unless you see DNI in my name  $\color{#c97fb1}{\textsf{(i never do)}}$ but please $\color{#764dac}{\textsf{check my rentry first i beg.}}$ Matching skins is encouraged I always hop on famous pairs :P <p>
 
- </p>
-   <p align="center"> gif ᅠᅠ <a href="https://x.com/shimoexu/status/2027145005434024371">credit</a>
+ᅠ ᅠ <a href="https://rentry.co/slimeknight-">rentry</a> ᅠ ᅠ ᅠ ᅠ ᅠ <a href="https://hash8f2240.atabook.org">atabookorg</a>
+ </p> <p align="center"> $\color{#cfae93}{\textsf{haveᅠ  a ᅠ good ᅠ day ᅠ everynyan}}$ ᅠ ᅠ <img align="center" salt="image" src="https://64.media.tumblr.com/9a85193edcd0a1811ee5d049ae5ae61a/0be022a307cf949b-00/s75x75_c1/f84bdcf97b70c7ece8a4bb4cbe740889791a3f0f.gifv" /> ᅠ ᅠ ᅠ </p> 
