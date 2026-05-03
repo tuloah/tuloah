@@ -5,9 +5,9 @@
  <p align="justify"> ᅠᅠ</p> 
   <p align=center>
     <a href="https://x.com/insectlover001/status/2018360632014451004">
-<img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/cree.png" /> ᅠ⸝⸝ᅠ
+<img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/cree.png" />
       <a href="https://rentry.co/slimeknight-">
-<img width="65" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/rrrrrr" /> ᅠ ⧽ᅠ
+<img width="65" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/rrrrrr" />
              <a href="https://hash8f2240.atabook.org">
 <img width="110" alt="cre" src="https://file.garden/aG4uPTNO_Dlar84S/bok.png" />
 </p>
