@@ -1,6 +1,6 @@
   <img align="left" width="350px" salt="image" src="https://file.garden/aG4uPTNO_Dlar84S/pimpom.gif" />
-   <p align="justify"> $\color{#a9877c}{\textsf{I don't have a name so feel free to cal me however you want!}}$   ᅠ(ㅅ´ ˘ ‘) $\color{#c17b5e}{\textsf{C+H is always encouraged}}$ I am very friendly! Tho you should know that I AFK or offtab a lot that's why I prefer whispers over public chat any time </p>
- <p align="justify"> $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
+   <p align="center"> $\color{#a9877c}{\textsf{I don't have a name so feel free to cal me however you want!}}$   ᅠ(ㅅ´ ˘ ‘) $\color{#c17b5e}{\textsf{C+H is always encouraged}}$ I am very friendly! Tho you should know that I AFK or offtab a lot that's why I prefer whispers over public chat any time </p>
+ <p align="center"> $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
  <p align="justify"> ᅠᅠ</p> 
    <p align=center>
  <img width="65px" salt="image" src="https://64.media.tumblr.com/94765588f70e6f99cf5b8593b5edca08/4e6f4a8c3ff6d067-01/s500x750/aba990772e0da9928199f82f2fcd6a3383f5dac3.pnj" /> 
