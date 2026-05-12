@@ -1,6 +1,6 @@
   <img align="left" width="350px" salt="image" src="https://file.garden/aG4uPTNO_Dlar84S/pimpom.gif" />
   <p align="center">
- <img src="https://komarev.com/ghpvc/?username=tuloah&color=c56f6b&style=plastic&label=mewmeow" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="minilow" src="https://file.garden/aG4uPTNO_Dlar84S/juj" </p>  <img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
+ <img src="https://komarev.com/ghpvc/?username=tuloah&color=c56f6b&style=plastic&label=mewmeow" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
 </p>
    <p align="center"> $\color{#a9877c}{\textsf{I don't have a name so feel free to cal me however you want!}}$   ᅠ(ㅅ´ ˘ ‘) $\color{#c17b5e}{\textsf{C+H is always encouraged}}$ I am very friendly! Tho you should know that I AFK or offtab a lot that's why I prefer whispers over public chat any time + I use my status the way it was intended to be used </p>
  <p align="center"> $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
