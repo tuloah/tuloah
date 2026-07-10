@@ -4,15 +4,15 @@
  <img src="https://komarev.com/ghpvc/?username=tuloah&color=c56f6b&style=plastic&label=mewmeow" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
 </p>
 
- 　 　　 　  　 　　 　      $\color{#a9877c}{\textsf{Sharp　　 or　　 Jayㅤㅤㅤ—ㅤㅤ prns.cc}}$   ᅠ
+ 　 　　 　  　 　　 　    $\color{#a9877c}{\textsf{Sharp　　 or　　 Jayㅤㅤㅤ—ㅤㅤ prns.cc}}$   ᅠ
      
-  　    　 　　 　　　  　 (ㅅ´ ˘ ‘)　　 $\color{#c17b5e}{\textsf{C+H is　　always　　encouraged}}$ 
+  　    　 　　 　　　  (ㅅ´ ˘ ‘)　　 $\color{#c17b5e}{\textsf{C+H is　　always　　encouraged}}$ 
                     
   　 　   　  　  I am very friendly! Tho you should know that I AFK or offtab
 
   　 　    　　 a lot that's why I prefer　　whispers over public chat any time
               
-  　 　   　  　    　 　      + I use my status the way it was intended to be used
+  　 　   　  　    　 　    + I use my status the way it was intended to be used
                          
 　　 　　 　 $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
 
