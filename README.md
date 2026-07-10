@@ -16,11 +16,10 @@
                          
 　　 　　 　 $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
 
-  <p align=center>
-    <a href="https://x.com/insectlover001/status/2018360632014451004">
+　　 　　　   <a href="https://x.com/insectlover001/status/2018360632014451004">　　 
 <img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/cree.png" />
-      <a href="https://rentry.co/slimeknight-">
+      <a href="https://rentry.co/slimeknight-">　　 
 <img width="65" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/rrrrrr" />
-             <a href="https://hash8f2240.atabook.org">
+             <a href="https://hash8f2240.atabook.org">　　 
 <img width="110" alt="cre" src="https://file.garden/aG4uPTNO_Dlar84S/bok.png" />
 </p>
