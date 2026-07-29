@@ -4,7 +4,7 @@
  <img src="https://komarev.com/ghpvc/?username=tuloah&color=c56f6b&style=plastic&label=mewmeow" alt="Profile Views" /> ᅠᅠᅠᅠᅠᅠᅠ<img width="20" alt="miniless" src="https://file.garden/aG4uPTNO_Dlar84S/sha" </p>
 </p>
 
- 　 　　 　  　 　　 　    $\color{#a9877c}{\textsf{Sharp　　 or　　 Jayㅤㅤㅤ—}}$ㅤㅤ <a href="https://pronouns.cc/@polarvisioned">prns.cc</a>    ᅠ
+ 　 　　 　  　 　　 　    $\color{#a9877c}{\textsf{Sharp　　 or　　 Jayㅤㅤㅤ—}}$ㅤㅤ <a href="https://pronouns.cc/@CEJ240">prns.cc</a>    ᅠ
      
   　    　 　　 　　　  (ㅅ´ ˘ ‘)　　 $\color{#c17b5e}{\textsf{C+H is　　always　　encouraged}}$ 
                     
