@@ -7,19 +7,18 @@
  　 　　 　  　 　　 　    $\color{#a9877c}{\textsf{Sharp　　 or　　 Jayㅤㅤㅤ—}}$ㅤㅤ <a href="https://pronouns.cc/@CEJ240">prns.cc</a>    ᅠ
      
   　    　 　　 　　　  (ㅅ´ ˘ ‘)　　 $\color{#c17b5e}{\textsf{C+H is　　always　　encouraged}}$ 
-                    
-  　 　   　  　  I am very friendly! Tho you should know that I AFK or offtab
 
-  　 　    　　 a lot that's why I prefer　　whispers over public chat any time
+  　    　 　　 　　Please　　check out my　　<a href="https://txto.eu.org/cej"> info</a>　　before anything!!
+                    
+  　 　   　  　  $\color{#ead286}{\textsf{I am very friendly! Tho you should know that I AFK or offtab}}$
+
+  　 　    　　 $\color{#ead286}{\textsf{a lot that's why I prefer　　whispers over public chat any time}}$
               
   　 　   　  　    　 　    + I use my status the way it was intended to be used
                          
-　　 　　 　 $\color{#ead286}{\textsf{Check my rentry, especially DNI, before interacting with me}}$ </p> 
 
-　　 　　　   <a href="https://x.com/insectlover001/status/2018360632014451004">　　 
+　　 　　　     　　　   <a href="https://x.com/insectlover001/status/2018360632014451004">　　 
 <img width="90" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/cree.png" />
-      <a href="https://rentry.co/slimeknight-">　　 
-<img width="65" alt="ata" src="https://file.garden/aG4uPTNO_Dlar84S/rrrrrr" />
              <a href="https://hash8f2240.atabook.org">　　 
 <img width="110" alt="cre" src="https://file.garden/aG4uPTNO_Dlar84S/bok.png" />
 </p>
